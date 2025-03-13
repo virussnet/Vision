@@ -8,4 +8,4 @@
 - Сохранить остроту зрения
 
 
-по вопросам пишиьте в TG @[vitalyliakh](https://t.me/vitalyliakh)
+по вопросам пишиьте в TG https://t.me/vitalyliakh
